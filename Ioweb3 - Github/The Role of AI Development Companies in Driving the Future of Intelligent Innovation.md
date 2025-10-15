@@ -19,7 +19,7 @@ Custom AI applications for automation, personalization, and optimization
 
 These services empower organizations to unlock new levels of efficiency and insight.
 
-Why Businesses Partner with AI Development Companies
+Why Businesses Partner with [AI Development Companies]([url](https://resurs.ai/))
 
 Collaborating with a trusted AI development company
  offers numerous advantages:
